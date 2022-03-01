@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Hendiana, Bachelor of Engineering.
 - 👀 I’m currently learning on data analytics and data science.
 - 💞️ I’m looking to collaborate on everything relate to data analytics or data science project.
-- 📫 You can reach me on https://www.linkedin.com/in/hendianahendiana/.
+- 📫 You can reach me on https://linktr.ee/hendianakim.
 - 🌱 Thankyou!
